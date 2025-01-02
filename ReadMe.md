@@ -1,5 +1,4 @@
-## Hi👋 I am 
-## Yashpreet Singh
+## Hi👋 I am Yashpreet Singh
 
 
 ## 🌐 Socials:
